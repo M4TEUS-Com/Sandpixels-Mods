@@ -18,4 +18,4 @@
 
 Sandpixels Project history 📖
 
-all started on 24/Aug/2026 when I have created https://github.com/M4TEUS-Com/Sandboxels-Mods . after 2, 3 days, the repository don't be famous (I have divulged on Sandboxels Reddit) when I said I have a idea "why not send a comment on R74n YouTube to she divulge it" after me send, i waited 1 day. after 1 day, I have go see if R74n quote my Comment and the comment has been DELETED by R74n! 28/Aug/2026 to 11/Sep I'm angry after this happened. when 12/Sep/2026 have started, I have the idea to create the Sandpixels. 🔚
+all started on 24/Aug/2026 when I have created https://github.com/M4TEUS-Com/Sandboxels-Mods . after 2, 3 days, the repository don't be famous (I have divulged on Sandboxels Reddit) when I have a idea "why not send a comment on R74n YouTube to she divulge it" after me send, i waited 1 day. after 1 day, I have go see if R74n quote my Comment and the comment has been DELETED by R74n! 28/Aug/2026 to 11/Sep I'm angry after this happened. when 12/Sep/2026 have started, I have the idea to create the Sandpixels. 🔚
